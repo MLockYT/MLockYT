@@ -2,4 +2,4 @@
 - 🇩🇪 I'm from Germany and I'm not the best in writing or speaking in English
 - 👀 I’m interested in coding, games and anime
 - 🌱 I’m currently learning java
-- 📫 How to reach me: "I am going to figure out a way of communication 😀"
+- 📫 How to reach me: "I am going to figure out a way of communication 😅"
